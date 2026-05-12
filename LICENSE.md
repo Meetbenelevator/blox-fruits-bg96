@@ -1,4 +1,4 @@
-#  
+#  Experience blox fruits like never before with blox fruits Scripts elite, the #1 Script. Includes infinite resources and silent aim for unbeatable
 
 
 
